@@ -1,6 +1,6 @@
 ### Thể thao Fabet
 
-[url=https://170.64.253.237/the-thao/]Thể thao Fabet[/url] là thiên đường cá cược trực tuyến Nơi tề tựu so tài cân kèo căn não các trận đấu đỉnh cao
+[Thể thao Fabet](https://170.64.253.237/the-thao/) là thiên đường cá cược trực tuyến Nơi tề tựu so tài cân kèo căn não các trận đấu đỉnh cao
 
 - Địa chỉ: 9 Phạm Văn Đồng, An Hải Bắc, Sơn Trà, Đà Nẵng 550000, Việt Nam
 
